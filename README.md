@@ -17,6 +17,8 @@
 
 ###
 - ⚡ Uma visão criativa e dedicada é o que de melhor tenho a oferecer! 
+
+- ❤️👩‍💻❤️
 ###
 
 <div> 
