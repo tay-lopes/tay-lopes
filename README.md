@@ -13,7 +13,7 @@
 
 ###
 
-- 😁  Totalmente Iniciante | Me aventurando a conhecer o mundo da programação de Frontend
+- ⚠️  Totalmente Iniciante | Me aventurando a conhecer o mundo da programação de Frontend
 
 ###
 - ⚡ Uma visão criativa e dedicada é o que de melhor tenho a oferecer! 
