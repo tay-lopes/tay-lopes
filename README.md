@@ -6,7 +6,7 @@
   
 
 
-- 👸 UX/UI Designer Jr | Graphic Designer | Illustrator | Visual Artist |
+- 👸 UX/UI Designer Jr | Graphic Designer | Illustrator | Visual Artist 
  ### 
  
 - 😄 Desde 2015 construindo a minha trajetória adquirindo conhecimentos sobre Design Gráfico, Arte Digital e Arte Tradicional , buscando me auto superar em cada trabalho a fim de nutrir sempre uma mentalidade de aprendiz. 
