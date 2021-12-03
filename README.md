@@ -12,7 +12,7 @@
 
 ###
 
-- ⚠️  Totalmente Iniciante | Me aventurando a conhecer o mundo da programação de Frontend
+- ⚠️  Iniciante | Me aventurando a conhecer o mundo da programação de Frontend
 
 ###
 
